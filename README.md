@@ -14,3 +14,4 @@ Ens aproximem a aquest fenònem entenent-lo com un moviment social dinàmic, per
 - March Against Monsanto (https://geneticliteracyproject.org/glp-facts/march-against-monsanto/)
 - J. B. Handley (https://childrenshealthdefense.org/author/jb-handley/)
 - Revolution for Choice (https://pathwaystofamilywellness.org/Informed-Choice/the-vaccine-revolution-for-truth.html)
+- Stop Mandatory Vaccination (https://www.stopmandatoryvaccination.com/)
